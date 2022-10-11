@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @[StarN01R](https://twitter.com/StarN01R)
+- 👀 I’m interested in Science, Technology, Art.
+- 🌱 I’m currently learning learning.
+- 💞️ I’m looking to collaborate on collaboration.
+- 📫 You can reach me via mail: StarN01R.314@gmail.com
+- (tbc)
